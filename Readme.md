@@ -1,6 +1,6 @@
 # Suche Frieden und jage ihm nach
 
-Unter diesem Motto steht eine Plakat- und Banner-Aktion der Evangelischen Kirchengemeinde Dörnberg.
+Unter diesem Motto steht eine Plakat- und Banner-Aktion der [Evangelischen Kirchengemeinde Dörnberg](www.kirche-doernberg.de).
 Dieses Beiblatt enthält einige Informationen zu den verfügbaren Druckvorlagen.
 
 ## Vorlagen
